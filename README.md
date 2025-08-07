@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Baldinsh
-- 👀 I’m interested in getting pussy
+- 👀 I’m interested wed design using AI
 - 🌱 I’m currently learning web design
 - 💞️ I’m looking to collaborate on web design
 - 📫 How to reach me? google me 
